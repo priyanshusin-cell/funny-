@@ -1,0 +1,2 @@
+# funny-
+my friend
